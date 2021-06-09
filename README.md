@@ -1,2 +1,0 @@
-# gyanendrarawat.github.io
-Portfolio
